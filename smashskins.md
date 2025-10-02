@@ -1,4 +1,6 @@
 Skins i use :)
+# [fukari alt edit](https://drive.google.com/file/d/1GQ-HE743d2ZKOn6kIW0yr3Xc3mD2A16M/view?usp=sharing)
+![]()
 # [azerino rektygon](https://drive.google.com/file/d/1RZnMu-k1Ol-jmfhjQp_ij9Un0cAcio6E/view?usp=drive_link)
 ![](https://files.catbox.moe/d9d3dt.jpg)
 # [Blue Woey](https://drive.google.com/file/d/10oY0yP39tXgvY3N6Nc1jwaN2PjLytk0U/view?usp=drive_link)
